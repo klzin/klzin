@@ -1,5 +1,9 @@
 # Hi, i'm <a href="https://t.me/klzinnn" rel="noopener noreferrer">Klzinn</a> <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Earth.gif" width="29px">
 
+```
+🚫 CONTA BANIDA: https://github.com/klzinnn
+```
+
 <br>
 
 ```“Se você não pode convencê-los, confunda-os.”```<br><br>
