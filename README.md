@@ -7,7 +7,6 @@
 <br>
 
 ```“Se você não pode convencê-los, confunda-os.”```<br><br>
-```Me chamo klzinnn, tento automatizar ao máximo tudo como logins, pesquisas e etc...``` <br><br>
 
 <img src="https://cdn-icons-png.flaticon.com/512/2917/2917073.png" width="50" height="50">&nbsp;&nbsp;&nbsp;&nbsp; ```📍 Brasil```<br>
 
